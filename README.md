@@ -19,7 +19,7 @@
 
 ## 📫 Reach Me At  
 - 📧 Email: [vishalmirase3@gmail.com]  
-- 💼 LinkedIn: [vishal-mirase]  
+- 💼 LinkedIn: (https://www.linkedin.com/in/vishal-mirase-0a004a31a)
 - 🐦 Twitter: [Vishal_mirase]  
 
 ## ⚡ Fun Fact  
